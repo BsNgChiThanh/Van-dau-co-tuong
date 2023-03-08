@@ -1,1 +1,3 @@
-# Van-dau-co-tuong
+# VÁN ĐẤU CỜ TƯỚNG THỰC CHIẾN #
+
+Đang cập nhật
